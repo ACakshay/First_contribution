@@ -1,4 +1,4 @@
 # First_contribution
 
-*Akshay chordia*
+*Akshay*
 *eshika Kothari*
